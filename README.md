@@ -1,8 +1,8 @@
 ### Hi there 👋
 
 You can contact me at     
-Twitter: https://twitter.com/iamwildtuna     
-Telegram: @wildtuna    
+Twitter: [WildTuna](https://twitter.com/iamwildtuna)     
+Telegram: [@wildtuna](https://t.me/wildtuna)    
 E-mail: nl@wildtuna.pro      
 
 **My artcles:**    
