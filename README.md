@@ -1,7 +1,6 @@
 ### Hi there 👋
 
-You can contact me at     
-Mastodon: [@WildTuna](https://social.exo.icu/@wildtuna)     
+You can contact me at         
 Telegram: [@wildtuna](https://t.me/wildtuna)    
 E-mail: nl@wildtuna.pro      
 
